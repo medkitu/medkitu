@@ -13,10 +13,8 @@
 <br>
 <br>
 <a href="https://github.com/vvendorr">ven was here</a><img width="27" height="24" alt="c1aeedc7cffd0c6025ae0cffb8bbb010" src="https://github.com/user-attachments/assets/6f0c3a52-ed77-4e65-97ec-a1d05bee4dc1" />
-
 <br>
 <br>
-
 <img width="320" height="129" alt="image" src="https://github.com/user-attachments/assets/9529b3b3-d3c4-4d1a-8e91-d00bdd157323" />
 <br>
 <br>
