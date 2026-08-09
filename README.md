@@ -17,13 +17,3 @@
 <p align="center">
 <img width="99" height="56" alt="tumblr_5ed2f64d75e7a567bfadc9b61a55a79e_f1348e64_100" src="https://github.com/user-attachments/assets/53b63cfd-6009-4feb-a033-286490ff92a9" /><img width="99" height="56" alt="tumblr_21686d7be1c66e2c9b111ae1ed697103_09e17e50_100" src="https://github.com/user-attachments/assets/b53f99f5-9630-4865-9312-714ce0e76b27" /><img width="99" height="56" alt="tumblr_5fa319176738b8a105e5909e0939b9cf_66473f48_100" src="https://github.com/user-attachments/assets/1678d149-5b4f-49aa-98d8-03a888b3e973" /><img width="99" height="56" alt="tumblr_08a703fbf0108e1d849f8fc3306bb572_1e72133f_100" src="https://github.com/user-attachments/assets/76e7ed68-6efd-45a4-980d-0b44e3915394" /><img width="99" height="56" alt="tumblr_b947d1c8dc873e7015d1fab1deb25452_aa7435be_100" src="https://github.com/user-attachments/assets/834101b6-6303-43b2-a37c-d677ea45db53" />
 </p>
-<br>
-<br>
-<p align="center">
-<a href="https://github.com/vvendorr">ven was here</a><img width="27" height="24" alt="c1aeedc7cffd0c6025ae0cffb8bbb010" src="https://github.com/user-attachments/assets/6f0c3a52-ed77-4e65-97ec-a1d05bee4dc1" />
-</p>
-<br>
-<br>
-<p align="center">
-<img width="320" height="129" alt="image" src="https://github.com/user-attachments/assets/9529b3b3-d3c4-4d1a-8e91-d00bdd157323" />
-</p>
