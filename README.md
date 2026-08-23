@@ -21,3 +21,13 @@
 <p align="center">
 <img width="280" height="24" alt="tumblr_1c99d3ed560658ba31190021d71d1db6_89dad0cb_250" src="https://github.com/user-attachments/assets/9c9e9910-c73a-4cca-9cc2-437d0924e959" />
 </p>
+<br>
+<br
+<p align="center">
+<img width="1025" height="534" alt="go_my_yaouri" src="https://github.com/user-attachments/assets/41d40334-5bda-4727-b0b2-1a34ec797ce2" />
+</p>
+<br>
+<br>
+<p align="center">
+yoauri...
+</p>
