@@ -20,7 +20,7 @@
 <br>
 <br>
 <p align="center">
-my 💝!!! 🥹🥺🥺🥺
+my partner!!! 🥹🥺🥺🥺
 </p>
 <br>
 <br>
