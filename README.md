@@ -15,12 +15,12 @@
 <br>
 <br>
 <p align="center">
-<img width="785" height="812" alt="Screenshot 2026-09-02 185410" src="https://github.com/user-attachments/assets/38c8321d-03ef-4fa0-bb07-b52b9dc81a10" />
+<img width="485" height="512" alt="Screenshot 2026-09-02 185410" src="https://github.com/user-attachments/assets/38c8321d-03ef-4fa0-bb07-b52b9dc81a10" /><img width="498" height="606" alt="me and moe" src="https://github.com/user-attachments/assets/3c9a5c21-5d9c-4e7e-bbd8-c7d8cb803fea" />
 </p>
 <br>
 <br>
 <p align="center">
-my partner!!! 🥹🥺🥺🥺
+my boyfriend!!! 💝
 </p>
 <br>
 <br>
