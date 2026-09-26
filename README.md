@@ -1,10 +1,10 @@
 <br>
 <br>
 <p align="center">
-<img width="498" height="276" alt="rodamrix-teal-rodamrix" src="https://github.com/user-attachments/assets/91217e55-c196-4fc2-95a3-7c39b22f63ff" />
+<img width="498" height="278" alt="among-us-among-us-tv-series" src="https://github.com/user-attachments/assets/36f3f80a-f2c5-4834-a27c-c67071ed28ac" />
 </p>
  <p align="center">
-  me 🥺😔
+  ↑ me 🥺😔
 </p>
 <br>
 <br>
